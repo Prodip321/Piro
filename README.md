@@ -1,2 +1,2 @@
 # Piro
-🔥NEVER    compare ME to YOU 🔥
+🔥LATER BETTER THEN NEVER🔥
